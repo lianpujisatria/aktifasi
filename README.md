@@ -1,1 +1,1 @@
-# https://afdhan.github.io/sce/
+# https://lianpujisatria.github.io/sce/
